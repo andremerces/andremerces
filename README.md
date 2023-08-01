@@ -28,4 +28,4 @@
 </div><br>
 
 
-🧑🏼‍🎓Estudante Superior de Tecnologia em Análise de Desenvolvimento de Sistema em Buscar cada dia o conhecimento na área de tecnologia🔎.
+🧑🏼‍🎓Estudante Superior de Tecnologia em Análise de Desenvolvimento de Sistema. Em Busca do conhecimento na área da tecnologia🔎.
